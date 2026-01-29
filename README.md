@@ -1,5 +1,5 @@
 # Home
-# EgorKreed
+# Kreed
 # Swim
 # Love
 # Sasha 
